@@ -8,4 +8,4 @@ In my journey, I've administered complex RFP/RFI/RFQ scopes, developed Unified P
 
 I excel in coordinating stakeholders and ensuring on-time proposal delivery. Currently, I aspire to strengthen my expertise and seek collaborative opportunities in the data analytics field.
 
-Connect with me on LinkedIn, or Twitter or reach out at ayushmittal24@gmai.com to discuss possibilities and insights.
+Connect with me on LinkedIn, or Twitter or reach out at ayushmittal24@gmail.com to discuss possibilities and insights.
